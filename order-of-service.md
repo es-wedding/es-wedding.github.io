@@ -92,12 +92,10 @@ Amen
 
 Thank you for attending what is a very special occasion for us.
 
-<div style="text-align: center">
-<br>
-As a prisoner for the Lord, then, I urge you to live a life worthy of the calling you have received. Be completely humble and gentle; be patient, bearing with one another in love. Make every effort to keep the unity of the Spirit through the bond of peace.<br>
-<br>
-There is one body and one Spirit, just as you were called to one hope when you were called; one Lord, one faith, one baptism; one God and Father of all, who is over all and through all and in all.<br>
-<br>
-Ephesians 4: 1-6<br>
-<br>
-</div>
+
+> As a prisoner for the Lord, then, I urge you to live a life worthy of the calling you have received. Be completely humble and gentle; be patient, bearing with one another in love. Make every effort to keep the unity of the Spirit through the bond of peace.
+
+> There is one body and one Spirit, just as you were called to one hope when you were called; one Lord, one faith, one baptism; one God and Father of all, who is over all and through all and in all.
+
+> - Ephesians 4: 1-6
+
