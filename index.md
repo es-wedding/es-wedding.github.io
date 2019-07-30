@@ -24,7 +24,7 @@ If you have any dietary requirements please contact us at [es.williams.wedding@g
 We would like to offer our guests multiple ways to provide us with a wedding gift.
 
 1. Gift us with your wonderful presence, fantastic dance moves or funny stories about the bride/groom;
-2. Gift us with an experience for our honeymoon, by [contributing to our 'honeymoon registry'](www.travelregistry.com.au/EmilySamWilliams); and,
+2. Gift us with an experience for our honeymoon, by [contributing to our 'honeymoon registry'](https://www.travelregistry.com.au/EmilySamWilliams); and,
 3. Gift us with a physical present; we are registered at David Jones ([Gift Registry Occasion ID: G00052983](https://www.davidjones.com/default.aspx?Z=giftregistry&action=view&id=5067C9C9-6D3C-4EE9-90BE-33408A85DA52&order=0)).
 
 ## FAQ
