@@ -1,5 +1,13 @@
 # Williams' Wedding
 
+## How do I RSVP
+
+Please RSVP at es.williams.wedding@gmail.com. Please notify us of dietary requirements & partners attending.
+
+## Ceremony
+
+The ceremony will be held on the 28th of September 2019 at 4pm (please be seated by 3.50pm) at [Albert St Uniting Church](https://goo.gl/maps/rBjHzPtocdni51UN8).
+
 ## Reception
 
 Please join us after the ceremony for drinks, canapés, and dinner. The reception will follow the wedding at Tattersall's Club, [Tattersall's Arcade, 215 Queen St, Brisbane City QLD 4000](https://goo.gl/maps/CVshB77NHZzUdDf59).
