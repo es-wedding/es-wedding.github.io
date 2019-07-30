@@ -1,6 +1,6 @@
 # Williams' Wedding
 
-## How do I RSVP
+## How do I RSVP?
 
 Please RSVP at es.williams.wedding@gmail.com. Please notify us of dietary requirements & partners attending.
 
